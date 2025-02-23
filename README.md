@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: N/A at the moment
 - 📫 How to reach me: N/A at the moment
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am Deaf.
+- ⚡ Fun fact: I am a Cyborg. :)
 
 <!---
 WhittleCode/WhittleCode is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
